@@ -1,1 +1,1 @@
-Guys,copy these codes and modify by yourself.
+Guys,copy these codes and modify as you want
